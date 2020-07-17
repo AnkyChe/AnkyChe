@@ -5,7 +5,7 @@
 - 😄 Pronouns: She/her  
 - ⚡ Fun fact: I have a lovely pet dog, she likes my hunsband more than me.  
 * 👯 We are running UserGroup https://fireusergroup.com 
-- 🌱 I’m currently learning Englis
+- 🌱 I’m currently learning English
 
 
 Cheers  
