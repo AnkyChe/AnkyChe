@@ -2,6 +2,7 @@
  
 - 🔭 I work at SSW https://www.ssw.com.au/people/anky-che 
 - 📫 How to reach me: AnkyChe@ssw.com.au
+- 💬 Ask me about accounting, China tax, financial reporting
 - 😄 Pronouns: She/her
 - 👩‍👧 I have a girl, she loves dancing
 - ⚡ Fun fact: I have a lovely pet dog, she likes my hunsband more than me.  
