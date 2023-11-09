@@ -6,7 +6,7 @@
 - ⚡ Fun fact: I have a lovely pet dog, she likes my hunsband more than me.  
 * 👯 We are running UserGroup https://fireusergroup.com 
 - 🌱 I’m currently learning English
-
+[![Anky's github stats](https://github-readme-stats.vercel.app/api?username=ankyche&theme=dark)](https://github.com/ankyche/github-readme-stats)
 
 Cheers  
 Anky Che
